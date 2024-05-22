@@ -1,1 +1,1 @@
-The Old Firm derby between Scottish clubs Celtic and Rangers is steeped in religious and cultural history, dividing the city of Glasgow.
+Soccer has become a global phenomenon, with leagues and competitions in countries across six continents, showcasing the sport's universal appeal.
