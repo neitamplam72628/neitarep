@@ -1,1 +1,1 @@
-Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
+FC Barcelona's "Tiki-taka" style of play, characterized by quick passing and movement, revolutionized modern soccer under coach Pep Guardiola.
