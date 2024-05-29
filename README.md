@@ -1,1 +1,1 @@
-FC Barcelona's "Tiki-taka" style of play, characterized by quick passing and movement, revolutionized modern soccer under coach Pep Guardiola.
+Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
