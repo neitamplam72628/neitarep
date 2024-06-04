@@ -1,1 +1,1 @@
-Diego Maradona's "Hand of God" goal and "Goal of the Century" against England in the 1986 World Cup quarter-final are iconic moments in soccer history.
+The 1950 World Cup final between Uruguay and Brazil at the Maracanã Stadium in Rio de Janeiro remains the highest-attended soccer match in history, with over 173,000 spectators.
