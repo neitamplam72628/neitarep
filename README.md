@@ -1,1 +1,1 @@
-FC Barcelona's "Tiki-taka" style of play, characterized by quick passing and movement, revolutionized modern soccer under coach Pep Guardiola.
+The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
