@@ -1,1 +1,1 @@
-The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
+Lionel Messi and Cristiano Ronaldo are considered two of the greatest players of their generation, each winning multiple Ballon d'Or awards.
