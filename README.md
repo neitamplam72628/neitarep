@@ -1,1 +1,1 @@
-Lionel Messi and Cristiano Ronaldo are considered two of the greatest players of their generation, each winning multiple Ballon d'Or awards.
+Diego Maradona's "Goal of the Century" against England in the 1986 World Cup was voted the FIFA Goal of the Century in 2002.
