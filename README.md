@@ -1,1 +1,1 @@
-The "Samba style" of Brazilian soccer is characterized by skillful dribbling, quick passing, and an emphasis on flair and creativity.
+Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
