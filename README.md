@@ -1,1 +1,1 @@
-Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
+The FIFA World Cup is the most-watched sporting event globally, with the 2018 final between France and Croatia attracting over a billion viewers.
