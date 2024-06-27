@@ -1,1 +1,1 @@
-The FIFA World Cup is the most-watched sporting event globally, with the 2018 final between France and Croatia attracting over a billion viewers.
+Alfredo Di Stefano, known as the "Blond Arrow," was a legendary figure for Real Madrid, playing a key role in their early European successes.
