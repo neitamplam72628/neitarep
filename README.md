@@ -1,1 +1,1 @@
-The Maracanã Stadium in Rio de Janeiro, Brazil, is one of the most iconic soccer venues in the world, hosting numerous historic matches and events.
+FC Barcelona's "Tiki-taka" style of play, characterized by quick passing and movement, revolutionized modern soccer under coach Pep Guardiola.
