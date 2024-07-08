@@ -1,1 +1,1 @@
-The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
+The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
