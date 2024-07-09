@@ -1,1 +1,1 @@
-The Ajax Youth Academy, known as "De Toekomst" (The Future), is renowned for its emphasis on technical skill and attacking football, shaping generations of Dutch talent.
+The Old Firm derby between Scottish clubs Celtic and Rangers is steeped in religious and cultural history, dividing the city of Glasgow.
