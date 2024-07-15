@@ -1,1 +1,1 @@
-Sir Bobby Charlton, a Manchester United and England legend, survived the Munich air disaster in 1958 and went on to win the World Cup in 1966.
+Franz Beckenbauer, nicknamed "Der Kaiser," won the FIFA World Cup as both a player (1974) and a manager (1990) with West Germany.
