@@ -1,1 +1,1 @@
-The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
+AC Milan holds the record for the most UEFA Champions League titles by an Italian club, with seven victories.
