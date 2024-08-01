@@ -1,1 +1,1 @@
-The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
+The 1950 World Cup final between Uruguay and Brazil at the Maracanã Stadium in Rio de Janeiro remains the highest-attended soccer match in history, with over 173,000 spectators.
